@@ -16,7 +16,7 @@ https://join.slack.com/t/sharebookworkspace/shared_invite/zt-4fb3uu8m-VPrkhzdI9u
 
 ## **3 - FAÇA PARTE DA EQUIPE NO TRELLO**
 
-https://trello.com/invite/sharebook6/928f21ef82592b5edafde06f171d338b
+https://trello.com/invite/b/QTdWPYhl/8fa88bfdb8cd529e01236704ce19983e/backlog
 
 </br>
 
